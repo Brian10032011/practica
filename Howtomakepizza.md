@@ -5,3 +5,4 @@ Cuando tengas la masa, espolvorea una superfície lisa con un poco de harina o c
 Después de estos cinco minutos amasando es momento de refinar la masa. Aplasta la masa, gírala, retuércela y repite el proceso durant cinco o diez minutos más.
 Cuando ya este lista la masa podemos empezar la pizza 
 Luego añadimos los sabores que se deseen
+Una vez este lista la pizza vamos a proceder a introducirla en el horno a una temperatura de 200 grados
